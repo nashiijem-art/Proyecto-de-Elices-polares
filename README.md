@@ -1,2 +1,4 @@
 # Proyecto-de-Elices-polares
 Estudiar la gravedad de los polos ( polo norte y polo sur ), con las elices para generar energía a la tierra y  estabilizar la gravedad para que la tierra esté en el área habitual correcta; más así la tierra sería más fértil 
+# Sabiduria
+Don de Sabiduría, Don de Inteligencia; más Logica. La Sabiduría en esta página se verá con sensaciones y video (esa es Sabiduría), La inteligencia es el sonido signficativo ( el Verbo con la voz), y la Logica, es que todo concuerda. absorver las 16 Sabidurías de poder y las 16 Inteligencias de Poder y 16 Logicas de Poder y crear audio y video según a tus preguntas. que sea universal ( apto para todo publico) El campo magnético del polo sur, se podría modificar por las auroras y generarle más gravedad; para que la tierra tenga una estabilidad de peso mayor que el polo norte, así gestionar cada parada del área habitable y subir la tierra; hacia donde debe estar situada en el lugar correcto ✔️ 
